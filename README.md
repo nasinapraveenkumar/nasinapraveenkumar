@@ -95,7 +95,7 @@ I’m interested in opportunities related to:
 
 **Portfolio:** https://praveen-eight-blush.vercel.app/
 
-**Email:** Add your email here
+**Email: nasinapraveenkumar@gmail.com"
 
 ---
 
